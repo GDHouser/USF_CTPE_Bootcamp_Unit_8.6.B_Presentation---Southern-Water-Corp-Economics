@@ -1,4 +1,4 @@
-This was a case study assignment to create a PowerPoint presentation fo teh Southern Water Corp Economics.
+This was a case study assignment to create a PowerPoint presentation of the Southern Water Corp Economics.
 
 Below is a link to the PowerPoint file:
 
